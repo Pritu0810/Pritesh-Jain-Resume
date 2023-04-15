@@ -1,1 +1,0 @@
-# Pritesh-Jain-Resume
